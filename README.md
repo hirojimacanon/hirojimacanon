@@ -24,6 +24,7 @@ aaand @battleguitar for the art!
 </br> ★ i need... cool friends... ok???? i yearn for a spam to my tenna. or an ojima to my hiro. platonic or not idc i luv making friends ok me me me
 </br>
 <h1> More on this later, my adoring fans! </h1>
+[rentry](https://rentry.co/ifkamimuracanforgiveme) !! [revospring](https://revospring.net/@hirojimacanon) !!
 
 </p>
 
