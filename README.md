@@ -13,7 +13,7 @@ aaand @battleguitar for the art!
 
 
 <p align="center">
-★ hi! i'm hiro but you can just call me tenna/shin or whatever pony i'm cosplaying atm
+★ hi! i'm hiro but you can just call me tenna/shin or whatever pony i'm cosplaying atm. i hate vonbabbit
 </br> i never made a readme before so sorry if the decor is bland AF!!
 </br> 16, plz dont be weird! he/him, bpdtism. PLSS INTERACT IF U KNOW TETRO OR ELEVATOR HITCH
 </br>
@@ -21,7 +21,7 @@ aaand @battleguitar for the art!
 </br> ★ c+h unless specified! if im idle then w2i ^_^ feel free to come interact with me PLSSS IM LONELY
 </br> ★ discord is @._deebieeefie!
 </br> ★ i loveeeeee roleplaying!!
-</br> ★ i need... cool friends... ok???? i yearn for a spam to my tenna. or an ojima to my hiro. platonic or not idc i luv making friends ok me me me
+</br> ★ i need... cool friends... ok???? protag to my coworker...spam to my tenna...takeshi to my hiro where r uu
 </br>
 <h1> More on this later, my adoring fans! </h1>
 
